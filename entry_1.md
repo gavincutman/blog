@@ -11,8 +11,6 @@ Stay tuned for more posts coming soon!
 
 
 - Dad jokes
-- Mom jokes
-- Office Jokes
 
 
 Feel free to leave comments and suggestions for future topics.
