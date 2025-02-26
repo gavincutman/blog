@@ -2,6 +2,6 @@
 
 ## Contents
 
-* [Entry 1] 
+* [Entry 1] (entry1.md) 
 
 - New line here
