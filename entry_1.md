@@ -14,6 +14,9 @@ Stay tuned for more posts coming soon!
 - Mom jokes
 - Office Jokes
 
+## Homework section
+
+- Adding a line for today 03/03/2025 
 
 Feel free to leave comments and suggestions for future topics.
 
